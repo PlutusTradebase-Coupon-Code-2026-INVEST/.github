@@ -1,4 +1,4 @@
-Looking for a smarter way to trade and save? **PlutusTradebase** is a prop trading platform offering funded trading accounts, evaluation challenges, and opportunities for traders to scale their capital through structured risk management. You can now get an **exclusive 50% discount** by using the promo code: **INVEST** when you register or purchase a challenge.
+Looking for a smarter way to trade and save? **PlutusTradebase** is a prop trading platform offering funded trading accounts, evaluation challenges, and opportunities for traders to scale their capital through structured risk management. You can now get an **exclusive 50% discount** by using the promo code: **INVEST** when you register or purchase a challenge!
 
 💎 **Why Choose PlutusTradebase?**
 PlutusTradebase is built for traders who want a straightforward path to funded accounts, with structured evaluations and scaling opportunities based on performance.
